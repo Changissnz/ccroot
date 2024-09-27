@@ -14,3 +14,7 @@ Remember, Florida was bought from Spain not that long ago. In plain English, I s
 - Fly over to Mexico. Sell the Siamese cats for five times the Thai market rate to the residents there that think the cats are oh so exotic.
 - Move back to Florida. Stay unemployed there, and squander all the profits made.
 - The end. 
+
+![IMG_20240927_055914](https://github.com/user-attachments/assets/bbb53325-9420-4c30-bef1-6c0b2387e08e)
+
+~ A Praetorian's Loyalty...
